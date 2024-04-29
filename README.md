@@ -1,0 +1,6 @@
+![Screenshot_2024-04-08-13-33-40-087_com example meals](https://github.com/suraajm21/Meals-App/assets/96039244/031574fe-486c-40a3-8d5a-6199533e8fd5)
+![Screenshot_2024-04-08-13-33-29-698_com example meals](https://github.com/suraajm21/Meals-App/assets/96039244/4f07a33f-c586-4042-8057-858bffdf137e)
+![Screenshot_2024-04-08-13-33-25-521_com example meals](https://github.com/suraajm21/Meals-App/assets/96039244/ef8d4e00-f1c4-42bb-812b-5db4c1856021)
+![Screenshot_2024-04-08-13-33-12-189_com example meals](https://github.com/suraajm21/Meals-App/assets/96039244/12793e16-f922-4cf7-940c-ed7ba7b9971f)
+![Screenshot_2024-04-08-13-33-05-114_com example meals](https://github.com/suraajm21/Meals-App/assets/96039244/fd345da3-15ac-4d8c-ad0e-ef3eebbbd6e1)
+![Screenshot_2024-04-08-13-32-55-294_com example meals](https://github.com/suraajm21/Meals-App/assets/96039244/873efafd-427f-4b3a-b766-e2dcb5af8e94)
